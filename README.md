@@ -1,3 +1,4 @@
+![(｡･ω･)ﾉﾞ✦₊ ⧣₊ ❀](https://komarev.com/ghpvc/?username=suntannedstepbrothr)
 ![image_alt](https://i9.glitter-graphics.org/pub/438/438839t2h5eoloav.png)
 ![image_alt](https://github.com/suntannedstepbrothr/new/blob/main/bmo_gif_1.gif?raw=true)
 <a href="https://www.last.fm/user/technodiscoluva">
